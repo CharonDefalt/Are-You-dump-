@@ -1,1 +1,1 @@
-# areYouDumb-JSProject
+# Just For Fun 😃
